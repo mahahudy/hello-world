@@ -1,3 +1,3 @@
 # hello-world
-hi judy i am studying master degree now 
-i am really growing up 
+hi  
+i am student now and i have to study all the time 
